@@ -1,2 +1,2 @@
 # Tugas3
-Saya sudah membuat tugas3 
+Saya Sudah Mengerjakan Tugas3 
